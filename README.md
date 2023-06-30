@@ -1,1 +1,0 @@
-# beammedicalsa_privacy
